@@ -69,6 +69,6 @@ Practical experience studying and participating in the foreign exchange market, 
 
 ## Connect With Me
 
-LinkedIn: [-](https://www.linkedin.com/in/anushragavvs/)
+LinkedIn: [Let's Connect](https://www.linkedin.com/in/anushragavvs/)
 
-GitHub: [-](https://github.com/anushragav-vs)
+GitHub: [Check Out](https://github.com/anushragav-vs)
